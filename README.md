@@ -1,1 +1,1 @@
-Thanks ChatGPT
+Credits ChatGPT
